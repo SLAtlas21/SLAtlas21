@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SLAtlas21 - SaraLynn Atlas
+- 👀 I’m interested in reading, music, gardening, mental health, social justice, politics, CATS.
+- 🌱 I’m currently learning how to play the ukulele (sporadically)
+- 💞️ I’m looking to collaborate on ... I recently joined as Marketing and Communications Assistant (Dave & Jackie), so all things related :-)
+- 📫 How to reach me saralynn.atlas@dapperlabs.com
